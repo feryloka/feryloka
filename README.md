@@ -5,7 +5,7 @@
 - 
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...3sfs
+- ⚡ Fun fact: ...3sfsdfg
 44655sdfsd
 <!---da46
 feryloka/feryloka is a ✨ special ✨ repository because its `README.md`dfgdg (this file) appears on your G3itHub profile.
