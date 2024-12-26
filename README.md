@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...sdf
 - 💞️ I’m looking to collaborate on ...65sdf
 - 📫 How to reach me ...
-- 😄 Pronouns: ...6
+- 😄 Pronouns: ...6sdf
 - ⚡ Fun fact: ...3sfsdfgsdf
 44655sdfsddas
 <!---da46546
