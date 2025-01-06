@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...65sdf
 - 📫 How to reach me ...
 - 😄 Pronouns: ...6sdfwew
-- ⚡ Fun fact: ...3sfsdfgsdf
+- ⚡ Fun fact: ...3sfsdfgsdfasd
 44655sdfsddas
 <!---da46546dsf
 feryloka/feryloka is a ✨ special ✨ repository because its `README.md`dfgdg (this file) appears on your G3itHubdfh profile.
