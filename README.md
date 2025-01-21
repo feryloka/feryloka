@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @feryloka
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...sdf
-- 💞️ I’m looking to collaborate on ...65sdf
+- 💞️ I’m looking to collaborate on ...65sdftr
 - 📫 How to reach me ...
 - 😄 Pronouns: ...6sdfwew564
 - ⚡ Fun fact: ...3sfsdfgsdfasd1122526
