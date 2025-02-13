@@ -6,7 +6,7 @@ gregxb- 👋 Hi, I’m @feryloka
 - 😄 Pronouns: ...6sdfwew564xcvsd
 - ⚡ Fun fact: ...3sfsdfgsdfasd1122526gtrcxv;pi;p
 44655sdfsddasrweewqxcvsf
-feryloka/feryloka is a ✨ special ✨ repository because its `README.md`dfgdg (this file) appears on your G3itHubdwedwfh profile.bggfdhd
+feryloka/feryloka is a ✨ special ✨ repository because its `README.md`dfgdg (this file) appears on your G3itHubdwedwfh dssdds.bggfdhd
 You can click the Preview link to take a look at your changes.4
 --->222cv
 fh453
