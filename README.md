@@ -2,7 +2,7 @@ bfggregxb- 👋 Hi, I’m @feryloka
 - 👀 I’m interested in ...uymjh
 - 🌱 I’m currently learning ...sdf
 - 💞️ I’m looking to collaborate on ...65sdftrdsfbfd
-- 📫 How to reach me ...gre
+- 📫 How to reach me ...grevrererv
 - 😄 Pronouns: ...6sdfwew564xcvsdghdsdv
 - ⚡ Fun fact: ...3sfsdfgsdfasd1122526gtrcxv;pi;jhxcvxcqwq
 44655sdfsddasrweewqxcvsfdsdfdbnassnfn
