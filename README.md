@@ -3,7 +3,7 @@ rgrgfdvfdbfggregxb- 👋 Hi, I’m @feryloka
 - 🌱 I’m currently learning ...sdf
 - 💞️ I’m looking to collaborate on ...65sdftrdsfbfdbgjhmhjttrvfd
 - 📫 How to reach me ...grevrerervzsa33303hghgdeeehgnghhgn
-- 😄 Pronouns: ...6sdfwew564xcvsdghdsdvewqqwevffdsdsd,njbh4
+- 😄 Pronouns: ...6sdfwew564xcvsdghdsdvewqqwevffdsdsd,njbh4gdfcv
 - ⚡ Fun fact: ...3sfsdfgsdfasd1122526gtrcxv;pi;jhxcvxcqwq87
 44655sdfsddasrweewqxcvsfdsdfdbnassnfnxvcxfsdsfreerggreegr
 feryloka/feryloka is a ✨ special ✨ repository because its `README.md`dfgdg (this file) appears on your G3itHubdwelhihhilidw44fsdfsdfsdjnh dxcvssdds.bggfdhdbgrgdssdfgg
