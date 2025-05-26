@@ -1,6 +1,6 @@
 j,jkjk,jk,jk,ghmhgmhrgrgfdvfdbfggregxb- 👋 Hi, I’m @feryloka
 - 👀 I’m interested in ...uymjh
-- 🌱 I’m currently learning ...sdf
+- 🌱 I’m currently learning ...sdfdfvdfdf
 - 💞️ I’m looking to collaborate on ...65sdftrdsfbfdbgjhmhjttrvfdefweww
 - 📫 How to reach me ...grevrerervzsa33303hghgdeeehgnghhgnsddddhrthrtfgtrgrtgrt
 - 😄 Pronouns: ...6sdfwew564xcvsdghdsdvewqqwevffdsdsd,njbh4gdfcverggregrejytytyjjt,ki,ikk
