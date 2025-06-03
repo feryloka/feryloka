@@ -2,7 +2,7 @@ j,jkjk,jk,jk,ghmhgmhrgrgfdvfdbfggregxb- 👋 Hi, I’m @feryloka
 - 👀 I’m interested in ...uymjh
 - 🌱 I’m currently learning ...sdfdfvdfdf
 - 💞️ I’m looking to collaborate on ...65sdftrdsfbfdbgjhmhjttrvfdefwewwefewwwwefewfewmhjjhmhj
-- 📫 How to reach me ...grevrerervzsa33303hghgdeeehgnghhgnsddddhrthrtfgtrgrtgrtnhvbbvbv
+- 📫 How to reach me ...grevrerervzsa33303hghgdeeehgnghhgnsddddhrthrtfgtrgrtgrtnhvbbvbvkjmkjkjjkjk
 - 😄 Pronouns: ...6sdfwew564xcvsdghdsdvewqqwevffdsdsd,njbh4gdfcverggregrejytytyjjt,ki,ikk
 - ⚡ Fun fact: ...3sfsdfgsdfasd1122526gtrcxv;pi;jhxcvxcqwq87nghdffdd
 44655sdfsddasrweewqxcvsfdsdfdbnassnfnxvcxfsdsfreerggreegrxcvxcvcvvvvvvvvvvvvvvvvvvvvvvv66262
