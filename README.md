@@ -1,4 +1,4 @@
-j,jkjk,jk,jk,ghmhgmhrgrgfdvfdbfggregxb- 👋 Hi, I’m @feryloka
+adscxj,jkjk,jk,jk,ghmhgmhrgrgfdvfdbfggregxb- 👋 Hi, I’m @feryloka
 - 👀 I’m interested in ...uymjh
 - 🌱 I’m currently learning ...sdfdfvdfdf
 - 💞️ I’m looking to collaborate on ...65sdftrdsfbfdbgjhmhjttrvfdefwewwefewwwwefewfewmhjjhmhj
